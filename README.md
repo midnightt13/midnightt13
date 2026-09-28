@@ -8,7 +8,7 @@
  </p>
    <div align="center"><img width="223" height="20" alt="5aae65aa" src="https://github.com/user-attachments/assets/3e8dd24f-edf1-417e-9a05-78d7ab25b851" />
 
- ###### </p>whisper 2 interact with me✔️ i ♡ making new friends </p>
+ ###### </p>whisper 2 interact with me✔️i usually offtab or with friends. i just ♡ making new friends </p>
    <div align="center"><img width="385" height="20" alt="263236faigonjw8e" src="https://github.com/user-attachments/assets/9a7ccd57-848e-4dc5-a89c-5a445045ca2c" />
     </p><img width="55" height="18" alt="91en5m" src="https://github.com/user-attachments/assets/4513be6c-be45-42cb-b066-35231a1208a0" />
 <img width="49" height="18" alt="h5krav" src="https://github.com/user-attachments/assets/159ce5bc-538c-4713-872d-0deaae490ac0" />
