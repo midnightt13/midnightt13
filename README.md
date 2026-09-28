@@ -17,4 +17,4 @@
    </div>
    <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fmidnightt13"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fmidnightt13&label=%E2%A0%80%20%E2%A0%80%20%E2%A0%80%20%E1%9B%9D%E2%A0%80%E2%99%B1%20%E2%A0%80visitor%20.&countColor=%2330825a&style=plastic&labelStyle=upper" /></a>
 
-###### </p>$\color{brown}{\text{NOTES:}}$ i usually offtab or with friends. you can interact with me though, i can very slow at replies. pls w21!! i hope i can reply faster! </p>
+###### </p>$\color{brown}{\text{NOTES:}}$ i usually offtab or with friends. you can interact with me though, i can very slow at replies. pls w2i!! i hope i can reply faster! </p>
